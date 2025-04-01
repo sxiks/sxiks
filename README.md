@@ -1,6 +1,6 @@
 # Hi I´m sXiks
 
-🤝Compuer Science student <br/>
+🤝Computer Science student <br/>
 ⚡I like to programming <br/>
 
 ## 🌐 Socials:
